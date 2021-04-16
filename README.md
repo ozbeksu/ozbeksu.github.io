@@ -1,1 +1,0 @@
-# ozbeksu.github.io
